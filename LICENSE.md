@@ -1,4 +1,4 @@
-#  
+#  new Scripts for oil empire is the best oil empire Script, featuring auto-sell and infinite resources. Safe and powerful for all your needs.
 
 
 
